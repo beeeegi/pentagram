@@ -1,2 +1,2 @@
-# pentagram
-banzi pentagrama saurnolisgan
+# banzi pentagrama saurnolisgan
+
